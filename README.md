@@ -1,0 +1,2 @@
+# stickersbad
+BAD STICKERS
